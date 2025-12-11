@@ -167,7 +167,19 @@ Screenshots Of the System:
 
 .
 
-.
+
 Link to powerpoint presentation:
+
 https://www.canva.com/design/DAG66nh50bo/634hQXiBUOaUXqQKYDSI_g/edit?utm_content=DAG66nh50bo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
+.
+
+.
+
+.
+
+.
+
+Link to video presentation: 
+
+https://drive.google.com/drive/folders/1nsYbFnQ3oyASfZX9dLOnOLhelq7-SlmG?fbclid=IwY2xjawOnsl9leHRuA2FlbQIxMABicmlkETFPbnVRbWN0eVNXbTNFVFY3c3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHoqEP1voXvtWJ9u4Dh2x5kZVWfSFKXRWjepCzIkgKoOf0oDDtBcRdBgi5Gqc_aem_TUEzb7xUtxbFsgG-z4_abA
