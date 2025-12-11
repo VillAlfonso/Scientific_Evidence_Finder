@@ -157,4 +157,17 @@ Screenshots Of the System:
 
 <img width="1898" height="989" alt="image" src="https://github.com/user-attachments/assets/5822941d-a888-48e3-9eab-0cbb5e505c88" />
 
+.
+
+.
+
+.
+
+.
+
+.
+
+.
+Link to powerpoint presentation:
+https://www.canva.com/design/DAG66nh50bo/634hQXiBUOaUXqQKYDSI_g/edit?utm_content=DAG66nh50bo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
